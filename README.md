@@ -117,8 +117,7 @@ Features:
 
 📧 Email: mouadkhaloua206@gmail.com
 
-💼 LinkedIn:
-https://www.linkedin.com/in/mouad-khaloua-b5a1b0339/
+https://www.linkedin.com/in/mouadkhaloua/
 
 🌐 Portfolio:
 Coming Soon 🚀
