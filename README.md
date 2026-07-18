@@ -105,10 +105,10 @@ Features:
 
 ## 📫 Contact Me
 
-📧 Email: your-email@example.com
+📧 Email: mouadkhaloua206@gmail.com
 
 💼 LinkedIn:
-https://linkedin.com/in/mouad-khaloua
+https://www.linkedin.com/in/mouad-khaloua-b5a1b0339/
 
 🌐 Portfolio:
 Coming Soon 🚀
